@@ -1,4 +1,4 @@
-# 
+# exclusive VMware Workstation para PC executor é o melhor VMware Workstation para PC executor com suporte a multi-OS e pastas compartilhadas. Seguro, confiável e otimizado para
 
 
 
